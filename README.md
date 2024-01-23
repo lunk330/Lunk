@@ -6,7 +6,3 @@ sdsaddwsdadS
 sadfsdggsdfdsdfdgdgsgs
 asdsadsad
 dfsdfsdfs
-aaS
-fghhdtddfh
-dfghfyjtyu6
-bmghjcghxfhz
