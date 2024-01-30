@@ -4,7 +4,3 @@ asasvsdssd
 ddrerwwdsada
 sdsaddwsdadS
 sadfsdggsdfdsdfdgdgs
-fasdasd
-hfhxgdf
-fdgfdgsdg
-ghcghngfhxfthfx
